@@ -11,7 +11,9 @@ Information for my project 💢💦 :
 - Ozsenity
   
   > Discord : https://discord.gg/4RpcfTfFnS 👑
+  
   > All people developper Discord : // Gamers-geek | ❄#7380 // forsakez | 💉🤯#8634 // nSg#1323 //
+  
   > link official : https://ozsensity.fun/ ( Not created ) 🧨
   
   Require : Staff, developper etc ...
@@ -21,7 +23,9 @@ Information for my project 💢💦 :
 - Countkill
   
   > Discord : https://discord.gg/FQCqPgHv96 🎫
+  
   > All people developper Discord : // Gamers-geek | ❄#7380 // forsakez | 💉🤯#8634 //
+  
   > link official : https://countkill.to/ ( Not created ) 🎁
   
   Require : Staff, Enigme creator, ambassador etc ... 
