@@ -32,4 +32,8 @@ Information for my project 💢💦 :
   
   Description : On the discord server 🥶🥵
   
-  Contact me for any question ! Bye boss.
+  |-------------------------------------------------------------------------------------------------|
+  |                                                                                                 |
+  |                            Contact me for any question ! Bye boss.                              |
+  |                                                                                                 |
+  |-------------------------------------------------------------------------------------------------|
