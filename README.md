@@ -2,12 +2,12 @@
 
 I'm 14 years old and I work on **TWO** project ... 😎
 
-- 💧 I’m currently working on an Original Discord Bot named CountKill and a CSGO cheat named Ozsensity.
+- 💧 I’m currently working on an Original Discord Bot named CountKill and a CSGO cheat named Ozsensity but I'm working an lots of little project.
 - 🔥 I’m a Java Script, C# developper and I currency learning C++, PhP, HTML and CSS. I have really good skills and I learn really fast !
 - 🌀 Contact me : forsakez | 💉🤯#8634
 - 😎 To be a cool man : Join my discord community server : https://discord.gg/qxGnb9eJKp ( In dev.) | All stuff will be posted here and more ... 🤑
 
-Information for my project 💢💦 :
+Information for my big project 💢💦 :
 
 - Ozsenity
   
