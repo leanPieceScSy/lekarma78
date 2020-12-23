@@ -30,4 +30,6 @@ Information for my project 💢💦 :
   
   Require : Staff, Enigme creator, ambassador etc ... 
   
-  Description : On the discord server 
+  Description : On the discord server 🥶🥵
+  
+  Contact me for any question ! Bye boss.
